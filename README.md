@@ -3,4 +3,4 @@ Idea Warehouse
 
 My name is OuyehMeow,
 
-I love bodybuilding, boardgames and most importantly, I am really poor. 
+I love bodybuilding and boardgames, and most importantly, I am really broke. 
